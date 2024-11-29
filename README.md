@@ -1,5 +1,5 @@
 - 👋 Hi, I’m DolbitelShishok
-- 👀 I’m interested in 
+- 👀 I’m interested in animeeee
 - 🌱 I’m currently learning .
 - 💞️ I’m looking to collaborate on ..eb
 - 📫 How to reach me tgrerwefbg

@@ -2,7 +2,7 @@
 - 👀 I’m interested in animeeee
 - 🌱 I’m currently learning .yikuikrewfgfhb
 - 💞️ I’m looking to collaborate on ..eb
-- 📫 How to reach me tgrerwefbg
+- 📫 How to reach me htraf
 - 😄 Pronouns: ...greg
 - ⚡ Fun fact: ...ewf
 <!---drgew

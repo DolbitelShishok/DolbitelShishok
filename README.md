@@ -1,8 +1,8 @@
 - 👋 Hi, I’m DolbitelShishok
 - 👀 I’m interested in animeeee
 - 🌱 I’m currently learning ghagv
-- 💞️ I’m looking to collaborate on ..ytdjtyt6j6tyd
-- 📫 How to reach me htraf
+- 💞️ I’m looking to collaborate on ..wqevgfaergtrhtrsath
+- 📫 How to reach me wqe
 - 😄 Pronouns: ...greg
 - ⚡ Fun fact: ...ewf
 <!---drgew
